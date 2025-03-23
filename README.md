@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @lailablomme
+- 👀 I’m interested in creating software that makes people's lives better.
+- 🌱 I’m currently learning all kinds of things on https://learn.microsoft.com .
+- 💞️ I’m looking to collaborate on these projects I'm working on.
+- 📫 You can reach me through here or through LinkedIn.
+- 😄 Pronouns: she/her
